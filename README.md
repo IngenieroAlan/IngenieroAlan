@@ -4,8 +4,8 @@
 📧 brandon.rod182@gmail.com  
 📱 +52 612 150 5307  
 🔗 [LinkedIn](https://www.linkedin.com/in/brandon-alan-rodriguez/)  
-📄 [Certificado de inglés EF SET B2](https://cert.efset.org/es/f7FtJm)
-📄 [Curriculum vitae](https://drive.google.com/drive/folders/1rpuUYZiIEQk2W2oyYocXW-rGrQDgJqks?usp=sharing)
+📄 [Certificado de inglés EF SET B2](https://cert.efset.org/es/f7FtJm)  
+📄 [Curriculum vitae](https://drive.google.com/drive/folders/1rpuUYZiIEQk2W2oyYocXW-rGrQDgJqks?usp=sharing)  
 
 ---
 
